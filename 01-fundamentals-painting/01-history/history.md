@@ -56,6 +56,6 @@
     - Son mas costosas
 
 
-## 7- Pinturas Bicapa y Tricapa
+## 7- Pinturas Bicapa y Tricapa (Poliester)
 
     - Las pinturas Bicapa y Tricapa tienen menbranas que hacen que de profundida
